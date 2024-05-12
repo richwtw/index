@@ -1,1 +1,1 @@
-<h1>Great school; terrible, unaffiliated website</h1>
+The proper website is here <a href "https://www.wtwschool.co.uk">here</a>
